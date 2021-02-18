@@ -1,0 +1,15 @@
+https://survivingspirits.com/
+https://www.youtube.com/redirect?q=https%3A%2F%2Fsurvivingspirits.com
+https://maps.google.com/url?q=http%3A%2F%2Fwww.survivingspirits.com/
+https://cse.google.de/url?sa=t&url=http%3A%2F%2Fwww.survivingspirits.com
+https://images.google.com.br/url?sa=t&url=http%3A%2F%2Fsurvivingspirits.com
+https://toolbarqueries.google.es/url?rct=j&url=http%3A%2F%2Fwww.survivingspirits.com/&ved=7h4TWTUgt0JgsbpUwOOQn1D24BSNdY&usg=pWakg2KkhNhbBtREmM47qpKfVgMcXu
+https://maps.google.co.jp/url?sa=t&url=http%3A%2F%2Fsurvivingspirits.com
+https://cse.google.ru/url?sa=t&url=https%3A%2F%2Fsurvivingspirits.com
+https://toolbarqueries.google.fr/url?sa=t&source=web&rct=j&url=http%3A%2F%2Fwww.survivingspirits.com&ved=5gjyF1ccJLZiXLBeypcUowFCzSa6hz&usg=3yqlbAMI8rcFY3SuBE8XZXB4aIKP7W
+https://maps.google.pl/url?sa=t&url=http%3A%2F%2Fsurvivingspirits.com
+https://ipv4.google.com/url?q=http%3A%2F%2Fwww.survivingspirits.com/
+https://clients1.google.it/url?q=http%3A%2F%2Fwww.survivingspirits.com/
+https://clients1.google.co.uk/url?q=http%3A%2F%2Fsurvivingspirits.com/
+https://cse.google.com.tw/url?sa=t&url=http%3A%2F%2Fsurvivingspirits.com
+https://www.bing.com/news/apiclick.aspx?ref=FexRss&aid=&tid=9BB77FDA801248A5AD23FDBDD5922800&url=http%3A%2F%2Fwww.survivingspirits.com
